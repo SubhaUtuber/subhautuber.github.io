@@ -1,1 +1,1 @@
-https://subhautuber.github.io/
+https:/subhautuber.github.io/
